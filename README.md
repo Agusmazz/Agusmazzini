@@ -7,4 +7,5 @@
 
 ## CONTACT 
 
-https://www.linkedin.com/in/agust%C3%ADn-mazzini-b0a5191a1/
+Linkedin: https://www.linkedin.com/in/agust%C3%ADn-mazzini-b0a5191a1/
+Email: agumazzini@hotmail.com
